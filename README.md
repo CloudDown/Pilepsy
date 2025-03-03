@@ -1,2 +1,1 @@
-# Pilepsy
-Open PilepsyD.bat to start the program
+stolpeborgstedejqn.v6.9.74@gmail.com : Poulet05!
